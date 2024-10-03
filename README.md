@@ -492,9 +492,7 @@ Collaborations are a powerful tool to expand your reach, build credibility, and 
 
 ---
 
-### 6. **
-
-Leverage Cross-Promotion**
+### 6. **Leverage Cross-Promotion**
    Make sure to take full advantage of cross-promotion in any collaboration. If you're partnering with another influencer, brand, or organization, both parties should actively share the content across all platforms. Here are a few ways to ensure you're getting the most out of a cross-promotion:
 
    - **Social Media Posts**: Both you and your collaborator should post about the collaboration on all social platforms (Instagram, TikTok, YouTube, etc.) to maximize exposure.
